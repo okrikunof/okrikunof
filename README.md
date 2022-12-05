@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @okrikunof
+- 🌱 I’m currently learning in ITMO university
+- 📫 How to reach me okrikunof@gmail.com or t.me/okrikunof
